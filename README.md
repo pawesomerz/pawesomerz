@@ -1,5 +1,4 @@
-![Profile Views](https://komarev.com/ghpvc/?username=pawesomerz&color=E0576C&style=plaastic&label=𑄝+꠹+‎ )
-<p align="center">
+
   Will make a serious one soon : )
   </p>
 <p align="center">
